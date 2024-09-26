@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: Maikel Buala Beriman Hulu
 
-NIM : 
+NIM : 607062430007
 
 ## Instruksi
 
